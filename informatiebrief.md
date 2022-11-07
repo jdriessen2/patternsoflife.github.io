@@ -9,7 +9,7 @@ translate:
 	
 ## Informatiebrief Wetenschappelijk Onderzoek
 
-Je krijgt deze uitnodiging om dat je kort geleden bent aangemeld bij de Geestelijke Gezondheidszorg (GGZ) en deelneemt aan de Patroon Intake. Met deze informatiebrief willen we je vragen of je wilt deelnemen aan het onderzoek van het project ‘Patterns of Life’. Meedoen zal altijd vrijwillig zijn en je kunt op ieder moment besluiten om te stoppen met het onderzoek.
+Met deze informatie willen we je vragen of je wilt deelnemen aan wetenschappelijk onderzoek naar de patroonintake. Dit onderzoek is onderdeel van het project ‘Patterns of Life’. Meedoen zal altijd vrijwillig zijn en je kunt op ieder moment besluiten om te stoppen met het onderzoek.
 In deze brief lees je om wat voor onderzoek het gaat. Je leest wat de voordelen van het onderzoek zijn en wat de nadelen zouden kunnen zijn. Zou je deze informatie willen doorlezen voordat je beslist of je mee wilt doen met het onderzoek? Als je mee wilt doen, dan kun je in de Polly App aangeven dat je toestemming geeft voor deelname aan wetenschappelijk onderzoek. Heb je hier na het lezen van deze informatie nog vragen over? Mail dan naar ‘polly@psyq.nl’. We vinden het belangrijk dat al onze deelnemers goed worden geïnformeerd.
 Opdrachtgevers
 Dit onderzoek is opgestart door de Parnassia Groep. De onderzoekers zijn psychologen, psychiaters en onderzoekers. We voeren het onderzoek uit in verschillende GGZ-instellingen die horen bij de Parnassia Groep.
