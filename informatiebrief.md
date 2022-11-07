@@ -74,7 +74,7 @@ Tijdens het onderzoek kunnen we toevallig iets vinden dat belangrijk is voor jou
 #### _Kun je stoppen dat je gegevens worden gebruikt in dit onderzoek?_
 Ja, je kunt op elk moment zeggen dat we jouw gegevens niet meer mogen gebruiken. We zullen dat in de toekomst niet meer doen. Maar let op: als we jouw gegevens al een keer hebben gebruikt voor het onderzoek, dan kunnen we dat niet meer terugdraaien.
 #### _Meer weten over privacy?_
-Voor algemene informatie over jouw rechten bij het verwerken van jouw persoonsgegevens kun je de website van de Autoriteit Persoonsgegevens bezoeken: [_autoriteitpersoonsgegevens.nl_](http://www.autoriteitpersoonsgegevens.nl/).
+Voor algemene informatie over jouw rechten bij het verwerken van jouw persoonsgegevens kun je de website van de Autoriteit Persoonsgegevens bezoeken: [_autoriteitpersoonsgegevens.nl_](https://www.autoriteitpersoonsgegevens.nl/).
 Heb je vragen over je rechten? Of heb je een klacht over de verwerking van jouw persoonsgegevens? Neem dan contact op met degene die hiervoor verantwoordelijk is. Voor dit onderzoek is dat de commissie wetenschappelijk onderzoek van de Parnassia Groep.
 Bij vragen of klachten over je privacy kun je contact opnemen met de functionaris voor de gegevensbescherming van PsyQ, of je dient een klacht in bij de Autoriteit Persoonsgegevens.
 
