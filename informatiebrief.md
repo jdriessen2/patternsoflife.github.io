@@ -95,4 +95,4 @@ Als je verder nog vragen hebt over dit onderzoek, dan kun je contact opnemen met
 De onderzoekers kunnen worden benaderd via het emailadres ___polly@psyq.nl___.
 
 ### Toestemming geven
-Neem de tijd om rustig na te denken over dit onderzoek. Wanneer je weet of je mee wilt doen of niet, dan kun je dat opgeven tijdens het registeren van Polly, of onder 'profiel' --> 'mijn toestemmingen wijzigen'. Hier kun je tevens je toestemming op elk moment intrekken.
+Neem de tijd om rustig na te denken over dit onderzoek. Wanneer je weet of je mee wilt doen of niet, dan kun je dat opgeven tijdens het registeren van je account in Polly, of onder _'profiel'_ bij _'mijn toestemmingen wijzigen'_. HIer kun je ook je toestemming intrekken als je van gedachten veranderd.
